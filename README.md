@@ -1,4 +1,4 @@
 # Victor Rojas C.
-Architect - Archviz - 3D - Rendering
+Architect - Archviz - Animación - Realidad Virtual - 3D - Rendering
 
-WEB EN CONSTRUCCIÓN...
+Renovando para ti nuevos proyectos...
